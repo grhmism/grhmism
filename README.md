@@ -24,7 +24,7 @@ occasionally dry as HELL. dee en eye if you're bothered by that
 
 <br>
 
-[rblx](https://www.roblox.com/users/2015501258/profile)‎  ‎ ‎ ‎ [lecter](https://github.com/luvholmes)‎  ‎ ‎ ‎ [bloom](https://github.com/bloomism)
+[rblx](https://www.roblox.com/users/2015501258/profile)‎  ‎ ‎ ‎ [lecter](https://github.com/luvholmes)‎  ‎ ‎ ‎ [abigail](https://github.com/PUREPREY)
 
 <br>
 
